@@ -1,1 +1,1 @@
-# next-up-privacy-policy
+# Next Up - privacy policy
